@@ -1,5 +1,6 @@
 
 # Hi, I'm Murtaza! 🧑🏽‍💻👋
+![Murtaza Jarif](https://github.com/murtazajarif/murtazajarif/assets/97272907/75336b74-45bc-409d-87e5-6da6cb02a9d2)
 
 
 ## 🚀 About Me
